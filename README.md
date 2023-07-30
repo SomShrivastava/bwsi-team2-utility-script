@@ -1,1 +1,1 @@
-# bwsi-grandprix-utility-script
+# WELCOME TO BWSI TEAM #2 (winners) UTILITY SCRIPT
